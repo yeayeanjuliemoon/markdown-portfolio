@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![Image of Samoyed](https://www.keystonepuppies.com/puppy/samoyed-puppies-for-sale-in-pa/ginger-4#gallery)
